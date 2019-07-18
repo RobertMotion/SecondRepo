@@ -1,1 +1,1 @@
-# God's Grace
+# God's Grace is sufficient
